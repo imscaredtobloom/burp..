@@ -6,7 +6,7 @@
   
    <p align="center"
 
-![](https://r6dacted.carrd.co/assets/images/image07.png?v=bf2793c5)
+![](https://r6dacted.carrd.co/assets/images/image12.gif?v=c5632da6)
  
   <p align="center"
 
